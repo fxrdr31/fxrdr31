@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fxrdr31
+- 👋 Hi, I’m Fox
 - 👀 I’m interested in ... Women 
 - 🌱 I’m currently learning ... more about Women
 - 💞️ I’m looking to collaborate on ... lots of Women
